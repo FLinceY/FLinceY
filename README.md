@@ -1,2 +1,2 @@
 # Nada Aqui... (Ainda)
-## ![Discord:](https://discord.com/login) 0fluxu
+## [![Discord Icon](discord_icon.png)](https://discord.com/login) 0fluxu
