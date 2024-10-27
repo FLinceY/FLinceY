@@ -1,2 +1,2 @@
 # 🍂 Nada Aqui... (Ainda) 🍂
-## Discord: newfluxu
+## Discord: newfluxu, ou fluxub
